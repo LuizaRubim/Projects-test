@@ -1,3 +1,3 @@
 # Projects-test
 
-PATRICK< VENHA NAS REUNIõES!!!!!
+PATRICK VENHA NAS REUNIõES!!!!!
